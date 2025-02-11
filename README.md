@@ -1,2 +1,3 @@
 # 5C-VJPRO
-học
+STUDYING CHO NỚP 5c
+# ĐỪNG CÓ VÀO TRANG CHÍNH CỦA TUI
